@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Monde Joy Imfuwe
+# 👋 Hi, I'm Monde Joy Sifuwe
 
 Welcome to my GitHub profile!
 
